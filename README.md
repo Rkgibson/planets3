@@ -1,3 +1,3 @@
 # planets3
 DCW 
-hello friday!
+hello friday! hello once more friday!
